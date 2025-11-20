@@ -1,4 +1,9 @@
-# The Book of Mary
+---
+layout: post
+title:  "The Book of Mary"
+date:   2025-11-19 16:35:22 -0600
+categories: scripture
+---
 ## CHAPTER 1
 1 Behold I, Mary, having but little time to myself each day, and desiring that all my doings might be consecrated to God--
 
