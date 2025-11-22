@@ -245,7 +245,7 @@ categories: scripture
 
 18 And when we had felt these things, we departed from the inn and went to Galilee, for we knew that the field and the oxen were there.
 ## Discourse Concerning Revelation, December 3, 2023
-*God speaks to us through others' experiences. It may be asked, Why does God not reveal, himself, the entirety of the life of Jesus from his perspective, in divine clarity---an objective account?*
+*God speaks to us through others' experiences. It may be asked, Why does God not reveal, himself, the entirety of the life of Jesus from his perspective, in divine clarity---an objective account of his servants' lives and teachings?*
 
 *Instead, he reveals his doings through other people, through their stories and recollections, through their journeys and growth, and their perspectives. For God fundamentally is a kindred with the human spirit, and his heart beats with ours, and fashions our every way. This is why I am not telling the objective story of Jesus of Nazareth, but the specific recollections and perspective of his mother, Mary, who is worthy of respect, adoration, and empathy.*
 ## CHAPTER 10
